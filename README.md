@@ -1,1 +1,2 @@
 # BUSI-101-Company
+In the BUSI 101 class we did a group Business project, August 2020 – December 2020. I was a Product Manager for an entrepreneur project. We made a budget and business plan, and sold a variety of products with total revenue of $6,438 and a total profit of $1,015. This project helped me gained leadership experience, improve my Excel skills and develop an understanding of a basic business environment.
